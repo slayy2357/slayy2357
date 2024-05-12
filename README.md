@@ -1,1 +1,1 @@
-### Hi there 👋
+### learning chess && informatik
